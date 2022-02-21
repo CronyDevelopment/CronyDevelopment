@@ -1,0 +1,5 @@
+- 👋 Selam,Ben Eren
+- 👀 Garip Şeyler Deniyorum
+- 🌱 Bana Ulaşmak İstersen
+- 💞️ erensnydriletisim@yahoo.com
+- 📫 İyi Günler
